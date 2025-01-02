@@ -44,7 +44,7 @@ Here’s what I’ve picked up along the way:
 - I’m a big fan of classic literature—*Frankenstein* is one of my favorites!  
 - Music is my companion, and I enjoy all genres.  
 - I’m a Diamond-ranked player in League of Legends.  
-  **Feel free to team up if you’re up for the challenge! 🎮👾**
+  **Feel free to team up if you’re up for the challenge! 🎮✨👾**
 
 ## 👋 Farewell
 
